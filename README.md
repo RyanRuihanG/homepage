@@ -1,3 +1,3 @@
-# [ruihang.github.io](https://ruihang.github.io/)
+# [ruihang.github.io](https://ryanruihang.github.io/homepage/)
 
 churuihang@buaa.edu.cn
